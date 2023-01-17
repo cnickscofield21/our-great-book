@@ -1,6 +1,14 @@
 # Eaque ipsa quae ab illo inventore veritatis et quasi.
 
+CONTRASTING CHANGES FOR LAB...
+CONTRASTING CHANGES FOR LAB...
+Ut aut reiciendis voluptatibus maiores alias consequatur aut perferendis doloribus asperiores repellat. Non numquam eius modi tempora incidunt ut labore et dolore magnam aliquam quaerat voluptatem. Ut enim ad minima veniam, quis nostrum exercitationem ullam corporis suscipit laboriosam.Ut aut reiciendis voluptatibus maiores alias consequatur aut perferendis doloribus asperiores repellat. Non numquam eius modi tempora incidunt ut labore et dolore magnam aliquam quaerat voluptatem. Ut enim ad minima veniam, quis nostrum exercitationem ullam corporis suscipit laboriosam.
+
 Ut aut reiciendis voluptatibus maiores alias consequatur aut perferendis doloribus asperiores repellat. Non numquam eius modi tempora incidunt ut labore et dolore magnam aliquam quaerat voluptatem. Ut enim ad minima veniam, quis nostrum exercitationem ullam corporis suscipit laboriosam.
+
+Ut aut reiciendis voluptatibus maiores alias consequatur aut perferendis doloribus asperiores repellat. Non numquam eius modi tempora incidunt ut labore et dolore magnam aliquam quaerat voluptatem. Ut enim ad minima veniam, quis nostrum exercitationem ullam corporis suscipit laboriosam.
+
+CONTRASTING CHANGES FOR LAB...
 
 Et iusto odio dignissimos ducimus qui blanditiis praesentium voluptatum deleniti atque. __Fugiat quo voluptas nulla pariatur?__ *Animi, id est laborum et dolorum fuga.* Et harum quidem rerum facilis est et expedita distinctio.
 
